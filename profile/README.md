@@ -1,4 +1,4 @@
-## Hi there 👋
+my name is alok kumar ray.this is my organisation called alokray betlenut farm.i am from odisha India.my website https://alokray.com my email raya26896@gmail.com my phone no 9178808340.i want help from the community please help me built an app for my organisation and a webpage for me thanks👋
 
 <!--
 
